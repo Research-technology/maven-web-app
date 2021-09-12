@@ -13,7 +13,7 @@
 <h2 align="center"> 
 	An ideal online training  platform for DevOps and Cloud Engineers. 
 	We also offer interview preparation and job assistance. Class26 will run from October 2, 2021.  I really love the Lord so much.  Mighty God that I server, He does not sleep.  
-	Jesus is a mighty God. The shout of the King is in our midst. His name is JESUS.  HE IS OUR SUCCESS ACCESS KEY</h2>
+	Jesus is a mighty God. Yes He is. The shout of the King is in our midst. His name is JESUS.  HE IS OUR SUCCESS ACCESS KEY</h2>
 <hr>
 <div style="text-align: center;">
 	<span>
